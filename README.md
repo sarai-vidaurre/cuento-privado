@@ -47,3 +47,5 @@ Todos son iguales, incluyéndote a ti que te creí diferente, mi ángel.
 
 
 Fue entonces cuando entendí todo:
+
+No merecían salvación.
