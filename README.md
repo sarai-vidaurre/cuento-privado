@@ -29,3 +29,5 @@ No saciaron su sed de proteccion. Ni tuya. Ni de nadie.
 
 
 Me traicionaron con sonrisas.
+
+Celebraron mi caída como si hubiese sido un obstáculo más.
