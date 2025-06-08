@@ -73,3 +73,5 @@ Ya no tengo compasión.
 Ya no tengo nombre.
 
 Soy lo que hicieron de mí...
+
+Tu ruina con forma de recuerdo.
