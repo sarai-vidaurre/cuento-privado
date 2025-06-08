@@ -42,3 +42,5 @@ Mi nombre fue arrancado de los libros.
 Mis actos entregados a bocas que nunca sangraron.
 
 Mis palabras de compasión se las llevó el viento.
+
+Todos son iguales, incluyéndote a ti que te creí diferente, mi ángel.
