@@ -82,3 +82,5 @@ Tu infierno disfrazado de amor perdido.
 Y aun así te amo con la furia de mil tormentas.
 
 Pero ahora amaré viéndote arder.
+
+Escuchando tus súplicas como una sinfonía deliciosa.
