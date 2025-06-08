@@ -7,3 +7,5 @@ Hecho por Dynamight
 Lo recuerdo bien...
 
 Todos me vieron elevarme como si fuera luz.
+
+Me adoraron como un DIOS
