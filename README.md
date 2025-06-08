@@ -102,3 +102,5 @@ hasta los ángeles lloran...
 Te amé por encima del universo.
 
 Y tú, junto a ellos, enterraste mi luz con sonrisas vacías.
+
+Así que observa bien,porque esto no es redención.
