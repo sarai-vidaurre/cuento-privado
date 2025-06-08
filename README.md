@@ -33,3 +33,5 @@ Me traicionaron con sonrisas.
 Celebraron mi caída como si hubiese sido un obstáculo más.
 
 Y tú... tú miraste hacia otro lado.
+
+¿Acaso nunca te importó? ¿Nunca fui yo?
