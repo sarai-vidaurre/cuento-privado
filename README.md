@@ -91,3 +91,5 @@ El héroe murió por ti.
 Ahora surge el villano…
 
 Y acabará con toda la felicidad del mundo.
+
+Nadie podrá detenerme, ni siquiera tú, mi bello ángel.
