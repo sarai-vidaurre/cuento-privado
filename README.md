@@ -87,3 +87,5 @@ Escuchando tus súplicas como una sinfonía deliciosa.
 
 
 El héroe murió por ti.
+
+Ahora surge el villano…
