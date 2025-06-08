@@ -77,3 +77,6 @@ Soy lo que hicieron de mí...
 Tu ruina con forma de recuerdo.
 
 Tu infierno disfrazado de amor perdido.
+
+
+Y aun así te amo con la furia de mil tormentas.
