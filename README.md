@@ -26,3 +26,6 @@ Mi amor,Mi  sacrificio, Mis promesas...
 Di todo de mi por ustedes, por ti.
 
 No saciaron su sed de proteccion. Ni tuya. Ni de nadie.
+
+
+Me traicionaron con sonrisas.
