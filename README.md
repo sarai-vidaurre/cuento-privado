@@ -93,3 +93,5 @@ Ahora surge el villano…
 Y acabará con toda la felicidad del mundo.
 
 Nadie podrá detenerme, ni siquiera tú, mi bello ángel.
+
+Ahora quiero que el mundo lo grite en cada rincón:
