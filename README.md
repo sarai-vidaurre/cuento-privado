@@ -60,3 +60,5 @@ Regresé.
 Pero no como el Dios que acariciaba tus manos temblorosas.
 
 No.
+
+Volví como sombra que susurra tu nombre en la oscuridad.
