@@ -100,3 +100,5 @@ Ahora quiero que el mundo lo grite en cada rincón:
 hasta los ángeles lloran...
 
 Te amé por encima del universo.
+
+Y tú, junto a ellos, enterraste mi luz con sonrisas vacías.
