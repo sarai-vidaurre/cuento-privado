@@ -38,3 +38,5 @@ Y tú... tú miraste hacia otro lado.
 
 
 Mi nombre fue arrancado de los libros.
+
+Mis actos entregados a bocas que nunca sangraron.
