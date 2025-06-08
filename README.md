@@ -56,3 +56,5 @@ Y el mundo no merecía mi redención.
 
 
 Regresé.
+
+Pero no como el Dios que acariciaba tus manos temblorosas.
