@@ -69,3 +69,5 @@ Volví como la reencarnación del caos que creaste con tu abandono.
 
 
 Ya no tengo compasión.
+
+Ya no tengo nombre.
