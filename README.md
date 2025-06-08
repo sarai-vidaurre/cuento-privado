@@ -14,3 +14,5 @@ Tú,la unica por quien habria quemado el puto cielo.
 
 
 Me arrodille por ustedes
+
+Sangre por ustedes
