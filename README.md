@@ -66,3 +66,6 @@ Volví como sombra que susurra tu nombre en la oscuridad.
 Como el fuego que calcina lo que amas... lento, dulce, inevitable.
 
 Volví como la reencarnación del caos que creaste con tu abandono.
+
+
+Ya no tengo compasión.
