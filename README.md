@@ -51,3 +51,5 @@ Fue entonces cuando entendí todo:
 No merecían salvación.
 
 Tú no merecías mi amor.
+
+Y el mundo no merecía mi redención.
