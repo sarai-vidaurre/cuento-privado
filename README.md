@@ -122,3 +122,5 @@ pov de ella
 Yo también lo recuerdo.
 
  El día que el cielo se partió.
+
+ El día que Dios cambió…
