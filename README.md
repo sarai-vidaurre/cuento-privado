@@ -108,3 +108,5 @@ Así que observa bien,porque esto no es redención.
 Es una condena.
 
 Todo arde y tú arderás con ellos,mi dulce ángel.
+
+continuar
